@@ -7,9 +7,10 @@
 
 <div id="header" align="center">
 <a href=" ">
-<img src="https://i.postimg.cc/8cw829Jw/Untitled203-20250406164923.png" width='210' height='206'>
+<img src="https://i.postimg.cc/DwgT3d1M/269-A4-E44-B82-B-4068-82-F5-C342-E80-D49-E6.png" width='510' height='106'>
 </a> <br>
-  
+ ^ I LOVE YOU MY PONYTOWN HATERS
+  <br>
 w2i , c+h ok ,
 read rentry byi 
 <br>
