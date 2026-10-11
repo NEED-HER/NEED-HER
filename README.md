@@ -4,6 +4,5 @@
 ![](https://komarev.com/ghpvc/?username=MilitaryFashionShow&label=REVENANTS+++&color=000000)
 
 
-Nikki 21 it its
 
 
